@@ -1,2 +1,0 @@
-# luisconsuegra
-Portafolio
